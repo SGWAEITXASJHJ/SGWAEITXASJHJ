@@ -78,6 +78,8 @@ LGHLGHLGHLGHL
 
 完整版的Life is Strange， 包含后面的章节
 
+嘛，记得快乐第一
+
 Happy Birthday & Have fun.
 
 Yours,
